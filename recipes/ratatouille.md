@@ -1,6 +1,6 @@
 Ratatouille
 
-Everyone tells me i make ratatouille wrong, but it's good and relatively quick.$
+Everyone tells me i make ratatouille wrong, but it's good and relatively quick.
 
 Makes
 -----
