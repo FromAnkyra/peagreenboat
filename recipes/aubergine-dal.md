@@ -31,6 +31,7 @@ Method
 3. Once the onions are cooked, add the ginger, garlic, and ground spices, and stir for about a minute, or until fragrant. 
 4. Add the aubergine, stirring until all of it is coated in oil. If needed, add more oil. Add the tomato, stir, and then leave for about 10 minutes, until the aubergine is soft.
 5. Add the lentils, and cover with boiling water. Turn the heat up and leave with the lid on until the water is boiling, then lower the heat and let simmer until the lentils are cooked and the dal is the desired thickness.
+
 Serve with rice, or with bread (I find that naan and other flatbreads work best, but I have used toast in a pinch.)
 
 Notes
